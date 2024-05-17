@@ -1,1 +1,1 @@
-Welcome to my webpahe, this is a recap of my experience
+Welcome to my webpage, this is a recap of my experience
